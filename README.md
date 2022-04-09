@@ -1,0 +1,2 @@
+# gurux
+Murodjon
